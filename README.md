@@ -25,3 +25,5 @@ That being said, if you kin Diavolo [JJBA] please do not interact.
 ★ 😈 . + < I Love My Friends! ♡ AKA 'The Water'                                                                                                                          
 Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Adrian, & Ocean
 <img src="https://cdn.discordapp.com/attachments/968487206098444318/1052657700930072606/ciodia_ppp.png" width="300">
+
+Pitter Patter Pop Edit & Cioccolata Manga Colors By Me
