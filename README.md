@@ -21,4 +21,4 @@ That being said, if you kin Diavolo [JJBA] please do not interact.
 <img src="https://im4.ezgif.com/tmp/ezgif-4-1af34943ae.gif">
 
 ★ 😈 . + < I Love My Friends! ♡ AKA 'The Water'                                                                                                                          
-Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Adrian, & Ocean
+Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Adrian, & Ocean
