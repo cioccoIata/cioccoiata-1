@@ -1,18 +1,24 @@
-<img src="https://static.wikia.nocookie.net/jjba/images/1/11/Cioccolata_surgery.gif/revision/latest/scale-to-width-down/269?cb=20190623231621" width="360">
+<img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058072349372583966/Illustration3.png">
 
-💉 ⵌ . About Me . ↓
-* Diavolo
-* 19 y/o. He/Him. Bisexual Cis Man
-* I love Cioccolata, he is my BF irl. Cioccolata Interact :)
-* JJBA, Genshin, Twitch (xQc), Chainsaw Man, Breaking Bad & Better Call Saul
+<img src="https://cdn.discordapp.com/emojis/1003023413062926346.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023534676774973.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023302605930506.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023826742947880.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023679585787954.png" width="50"> <img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058070671558709379/Illustration5.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023679585787954.png" width="50">
 
+ 💉 ⵌ . About Me . ↓ <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">
+  * I go by Diavolo primarily, though I have a name I use for close friends only. 
+   * 19, Oct. 9th. He/Him ∙ Bisexual Cis Man
+   * under 16 limit int. idle chat is fine but I would prefer to befriend people closer in my age range.
 
-⛤🩸 . Buyer Beware
-* JJBA is my main interest, I will talk about it a lot.
-* My memory is very short, I may ask/tell you things I've already asked/told you in the past.
-* I am mostly AFK/Off-Tab, whispers are best to get a reply from me.
-* I don't mind anybody sitting with me or my friends, I won't yell at you for doing it.
+<img src="https://im4.ezgif.com/tmp/ezgif-4-1af34943ae.gif">
 
+ ⛤🩸 . Buyer Beware
+   * JJBA is my main interest, I will talk about it a lot.
+   * I love Cioccolata, he is my BF irl. No, I'm not gonna get upset if you like him too he's just a drawing.
+   * I do kin and sometimes I dislike doubles, but I'm very flexible and typically won't care if you don't brag about it.                                                                                                
+That being said, if you kin Diavolo [JJBA] please do not interact.
+      * I consider my kins to be me irl. I will call them me irl. If this upsets you then feel free to hide me. 
+   * I am mostly AFK/Off-Tab, whispers are best to get a reply from me. Don't be afraid to chat, I love conversation!
+   * I don't mind anybody sitting with me or my friends, I won't yell at you for doing it like most people do.
 
-★ 🍫 . + < I Love My Friends! ♡ AKA 'The Water'
-* Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Adrian, & Ocean
+<img src="https://im4.ezgif.com/tmp/ezgif-4-1af34943ae.gif">
+
+★ 😈 . + < I Love My Friends! ♡ AKA 'The Water'                                                                                                                          
+Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Adrian, & Ocean
