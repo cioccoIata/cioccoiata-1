@@ -9,7 +9,7 @@
    * 19, Oct. 9th. He/Him ∙ Bisexual Cis Man
    * under 16 limit int. idle chat is fine but I would prefer to befriend people closer in my age range.
 
-<img src="https://im4.ezgif.com/tmp/ezgif-4-1af34943ae.gif">
+<img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058325097800273970/ezgif-2-1a8eaa0bc6.gif">
 
  ⛤🩸 . Buyer Beware <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">
    * JJBA is my main interest, I will talk about it a lot.
@@ -19,8 +19,7 @@ That being said, if you kin Diavolo [JJBA] please do not interact.
       * I consider my kins to be me irl. I will call them me irl. If this upsets you then feel free to hide me. 
    * I am mostly AFK/Off-Tab, whispers are best to get a reply from me. Don't be afraid to chat, I love conversation!
    * I don't mind anybody sitting with me or my friends, I won't yell at you for doing it like most people do.
-
-<img src="https://im4.ezgif.com/tmp/ezgif-4-1af34943ae.gif">
+<img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058325097800273970/ezgif-2-1a8eaa0bc6.gif">
 
 ★ 😈 . + < I Love My Friends! ♡ AKA 'The Water' <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">                                                                                                                           
 Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Adrian, & Ocean
