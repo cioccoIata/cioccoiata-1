@@ -11,7 +11,7 @@
 
 <img src="https://im4.ezgif.com/tmp/ezgif-4-1af34943ae.gif">
 
- ⛤🩸 . Buyer Beware
+ ⛤🩸 . Buyer Beware <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">
    * JJBA is my main interest, I will talk about it a lot.
    * I love Cioccolata, he is my BF irl. No, I'm not gonna get upset if you like him too he's just a drawing.
    * I do kin and sometimes I dislike doubles, but I'm very flexible and typically won't care if you don't brag about it.                                                                                                
@@ -22,7 +22,7 @@ That being said, if you kin Diavolo [JJBA] please do not interact.
 
 <img src="https://im4.ezgif.com/tmp/ezgif-4-1af34943ae.gif">
 
-★ 😈 . + < I Love My Friends! ♡ AKA 'The Water'                                                                                                                          
+★ 😈 . + < I Love My Friends! ♡ AKA 'The Water' <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">                                                                                                                           
 Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Adrian, & Ocean
 <img src="https://cdn.discordapp.com/attachments/968487206098444318/1052657700930072606/ciodia_ppp.png" width="300">
 
