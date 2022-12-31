@@ -22,7 +22,9 @@ That being said, if you kin Diavolo [JJBA] please do not interact.
 <img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058325097800273970/ezgif-2-1a8eaa0bc6.gif">
 
 ★ 😈 . + < I Love My Friends! ♡ AKA 'The Water' <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">                                                                                                                           
-Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Guz, Lemon, Adrian, & Ocean
+Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni,                                                            
+Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Guz, Lemon, Adrian, & Ocean
+
 <img src="https://cdn.discordapp.com/attachments/968487206098444318/1052657700930072606/ciodia_ppp.png" width="300">
 
 Pitter Patter Pop Edit & Cioccolata Manga Colors By Me
