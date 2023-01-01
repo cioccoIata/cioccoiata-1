@@ -27,4 +27,4 @@ Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Guz, Lemon, Adrian, & Ocean
 
 <img src="https://cdn.discordapp.com/attachments/968487206098444318/1052657700930072606/ciodia_ppp.png" width="300">
 
-Pitter Patter Pop Edit & Cioccolata Manga Colors By Me
+Pitter Patter Pop Edit & Cioccolata & Diavolo Manga Colors By Me
